@@ -1,1 +1,1 @@
-# InsanityX
+# INSANITY
